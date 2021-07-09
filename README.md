@@ -1,3 +1,5 @@
 https://discord.gg/Kk3ZeCbK2R
 
-Credit to Venel#0612 for original creation of the dupe
+Credit to ItsVen and Da0neDatGotAway for original creation of the dupe
+
+oh and fuck you rntz
